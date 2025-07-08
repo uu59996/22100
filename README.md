@@ -26,4 +26,4 @@
 本页面仅提供公开网络资源导航服务，所有视频版权归原站所有。请用户根据当地法规合法使用，不得擅自下载、传播或商用内容。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/uu59996/22100 ）</span>
